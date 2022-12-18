@@ -123,8 +123,8 @@ To doubt they were kneeling then.
 
 ## exercise 3
 
-[youtube video]()
-![animal picture]()
+[youtube video](https://www.youtube.com/watch?v=PIrFQuC4C50)
+![animal picture](https://upload.wikimedia.org/wikipedia/commons/4/4d/Cat_November_2010-1a.jpg)
 
 ## exercise 4
 
